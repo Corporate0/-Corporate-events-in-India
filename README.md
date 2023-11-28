@@ -1,2 +1,2 @@
-# -Corporate-events-in-India
-  Excellence Enablers announces the eighth annual Corporate Governance Summit, Gatekeepers of Governance 2023, the solution-seeking Summit for thought leaders. Register Now. For more contact us or visit us at www.excellenceenablers.com
+Corporate Governance Concepts
+Dive into the world of corporate governance concepts. Uncover the principles, practices, and frameworks that drive ethical and accountable business operations. Gain a deeper understanding of the government's role in today's corporate landscape.click to know more https://excellenceenablers.com/knowledge-centre/
